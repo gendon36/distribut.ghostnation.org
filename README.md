@@ -1,1 +1,0 @@
-# distribut.ghostnation.org
